@@ -1,2 +1,2 @@
 # for-you
-this is an example/ practice for later repos
+the moon and i have been thinking so here
